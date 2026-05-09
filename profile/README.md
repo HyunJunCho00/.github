@@ -64,3 +64,4 @@
 ## 프로젝트 산출물
 ![{50EB3E16-FD45-471A-8247-BFB8F9AB7657}](https://github.com/user-attachments/assets/588c3577-10c2-4a0e-bd7b-90a90522f4ec)
 
+<img width="1276" height="1747" alt="산학협력프로젝트경진대회_우수상_조현준" src="https://github.com/user-attachments/assets/ee9a62d5-e90b-48cc-b364-c28da22893f2" />
